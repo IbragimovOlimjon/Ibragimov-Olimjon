@@ -1,1 +1,24 @@
-# Ibragimov-Olimjon
+# Ibragimov Olimjon
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
